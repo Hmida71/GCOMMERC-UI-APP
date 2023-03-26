@@ -1,2 +1,2 @@
 # GCOMMERC-UI-APP
-Morden UI design of E-COMMERC APP //  made with algeria ❤ By Hmida71
+Morden UI design of G-COMMERC APP //  made with algeria ❤ By Hmida71
